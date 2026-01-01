@@ -12,7 +12,6 @@
 
 🚀 Data + Insights + Visualization + Business Impact + Consistency are my tag words for life
 
--  ![wp11161509-spring-boot-wallpapers](https://github.com/user-attachments/assets/e4f59e69-f5c7-42f0-817b-80a83e17e475)
 
 
 <!---
